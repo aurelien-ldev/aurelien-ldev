@@ -2,7 +2,7 @@
 - 👀 I’m interested in code or manga
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me you can contact me on my email langlois.aurelien@etik.com
 - 😄 Pronouns: il/he
 - ⚡ Fun fact: i don't know
 
